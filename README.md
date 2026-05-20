@@ -1,1 +1,0 @@
-# ai-long-term-care
